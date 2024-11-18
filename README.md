@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently a software engineer student
 - 💞️ I’m looking to collaborate on making games and mobile application
-- 📫 you can reach me at my email : zenkahil@gamil.com
+- 📫 you can reach me at my email : zenkahil@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i don't have any fun facts!
 
